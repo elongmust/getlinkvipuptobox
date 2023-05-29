@@ -1,7 +1,7 @@
 # getlinkvipuptobox
 Download file from Uptobox premium without account - NEW METHOD 2023 TESTED
 
-# Download rapidgator.net without create account and free
+# Download UPTOBOX without create account and free 2023
 Download vip rapidgator.net link, free download link in rapidgator.net without account
 
 Step 1:
